@@ -2,8 +2,8 @@
 - 👀 I’m interested in getting a macbook
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me brody.v.mains@gmail.com
-
+- 📫 How to reach me no where
+- 
 
 <!---
 jadepilot13/jadepilot13 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
