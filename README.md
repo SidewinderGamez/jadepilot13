@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @jadepilot13
-- 👀 I’m interested in getting a macbook
+- 👋 Hi, I’m Derick
+- 👀 I’m interested in stuff
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me no where
