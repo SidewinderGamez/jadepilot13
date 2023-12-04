@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Derick
+- 👋 Hi, I’m Broderick
 - 👀 I’m interested in stuff
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
